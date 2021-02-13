@@ -1,1 +1,0 @@
-![Alt text](/Animalcute.jpg?raw=true "Screenshot My Gallery")
